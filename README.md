@@ -23,7 +23,7 @@
 
 ## Fun Facts 🎉
 
-- 🏄‍♂️ I'm an avid reader and i s
+- 🏄‍♂️ I'm an avid reader, novels have a way of penetrating my deep dark soul 😄.
 - 🎶 Music is my passion, a good playlist goes a loong way.
 - 📷 Photography is another hobby of mine, capturing moments and exploring new perspectives.
 
